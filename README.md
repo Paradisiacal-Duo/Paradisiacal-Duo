@@ -18,3 +18,6 @@ YALL I'M SO EXCITED I'LL CRY AGAIN
 <img width="700" src="https://i.pinimg.com/736x/ec/2d/09/ec2d09bb82ec8842bf330309d629bf03.jpg" alt="Grrr">
 </p>
 
+<p align="center">
+<img width="700" src="https://pbs.twimg.com/media/Ghb27duWwAAmC0a?format=jpg&name=large" alt="Grrr">
+</p>
