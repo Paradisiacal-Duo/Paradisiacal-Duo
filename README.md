@@ -1,6 +1,6 @@
 
 <p align="center">
-<img width="300" src="https://64.media.tumblr.com/139ac9677f7448fd8cb72ea7b6cc93eb/b0d8e702193345ac-01/s400x600/a988703f63c709664f19b54caaf2efff2aa3bfd8.pnj" alt="Grrr">
+<img width="300" src="https://64.media.tumblr.com/d96fd11e52e8cac07c6ea70bb51f224a/543646423ff06334-21/s500x750/aaa0e3846ddc38720fd143c13aa0f4c294c14afc.pnj" alt="Grrr">
 </p>
 
 
