@@ -19,6 +19,7 @@ to the 𝘣𝘦𝘨𝘪𝘯𝘯𝘪𝘯𝘨 and 𝙨𝙖𝙫𝙚 y̲o̲u̲." ㅤ
 </p>
 <p align="center">
 •
-</p>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="200" height="200" src="https://64.media.tumblr.com/aa8c1ef6f915c121a9a1d4a9a5f0b61a/5a731279187a977a-69/s2048x3072/7a9c684b8f013413671f6d1418043045acaa10af.pnj"> 
+</p>
+<img width="200" height="200" src="https://64.media.tumblr.com/aa8c1ef6f915c121a9a1d4a9a5f0b61a/5a731279187a977a-69/s2048x3072/7a9c684b8f013413671f6d1418043045acaa10af.pnj"> 
 <img width="200" height="200" src="https://64.media.tumblr.com/aa8c1ef6f915c121a9a1d4a9a5f0b61a/5a731279187a977a-69/s2048x3072/7a9c684b8f013413671f6d1418043045acaa10af.pnj"> 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
