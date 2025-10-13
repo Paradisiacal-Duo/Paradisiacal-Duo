@@ -1,6 +1,6 @@
 <img align="right" width="600" height="600" src="https://64.media.tumblr.com/c0301f3efe10112e79644dd8af4e4e9c/d11e00faaf5d3aaf-c1/s2048x3072/72266f301a79696a9879125906b7888d4e33be7b.pnj"> 
 
-ㅤㅤㅤㅤㅤㅤㅤ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=Paradisiacal-Duo&base=1000&color=423C67&style=flat-square&label=𓈒+✦+time+regs)
+ㅤㅤㅤㅤㅤ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=Paradisiacal-Duo&base=1000&color=423C67&style=flat-square&label=𓈒+✦+time+regs)
 
 ◞ "Sorry, 𝘾𝙝𝙚𝙣𝙜 𝙓𝙞𝙖𝙤𝙨𝙝𝙞 I’ve always been
 telling you to 𝙣𝙤𝙩 change the 𝘱𝘢𝘴𝘵,
