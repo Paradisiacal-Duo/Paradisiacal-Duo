@@ -19,7 +19,10 @@ to the 𝘣𝘦𝘨𝘪𝘯𝘯𝘪𝘯𝘨 and 𝙨𝙖𝙫𝙚 y̲o̲u̲." ㅤ
 </p>
 <p align="center">
 •
+</p>ㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=iu796ygnehfins9hx4eueghzb&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=iu796ygnehfins9hx4eueghzb&cover_image=true&theme=novatorem&show_offline=false&background_color=f8c5ee&interchange=false&profanity=false&bar_color=423c67&bar_color_cover=true">
+  </a>
 </p>
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-<img align="center" width="200" height="200" src="https://64.media.tumblr.com/20b94e85c9d52d8a49f5d6586847a97a/e16d42bc6d8fc356-c5/s1280x1920/81e927380b711d61cab92f61c8fc573a3987221e.pnj"> 
