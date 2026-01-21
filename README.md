@@ -1,3 +1,6 @@
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=Paradisiacal-Duo&base=3000&color=3B537D&style=flat-square&label=₍+ᐢ+.+.+ᐢ+₎)
+
+
 <p align="center">
 "If I spend an entire lifetime watching over you, in exchange for a single glance from you, I don’t want to be left with nothing when the dream ends."
 </p>
@@ -10,6 +13,9 @@ c + h always allowed !! also, please whisper to interact since I'm afk/offtab mo
 If you aren't my friend, do not boop or cover me ^_^ and I change styles a lot so let me know if it's too similar to yours . . . anyway take in mind that i have issues socializing, so I'm very awkward, it might be difficult for me to approach you first and hold a conversation thank you
 </p>
 
+<p align="center">
+✦
+</p>
+
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=Paradisiacal-Duo&base=3000&color=3B537D&style=flat-square&label=₍+ᐢ+.+.+ᐢ+₎)
