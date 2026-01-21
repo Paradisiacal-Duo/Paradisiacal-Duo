@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=Paradisiacal-Duo&base=3000&color=3B537D&style=flat-square&label=₍+ᐢ+.+.+ᐢ+₎)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=Paradisiacal-Duo&base=3000&color=3B537D&style=flat-square&label=₍+ᐢ+.+.+ᐢ+₎)
 
 
 <p align="center">
