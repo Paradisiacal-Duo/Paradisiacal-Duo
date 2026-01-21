@@ -1,28 +1,15 @@
-<img align="right" width="600" height="600" src="https://64.media.tumblr.com/c0301f3efe10112e79644dd8af4e4e9c/d11e00faaf5d3aaf-c1/s2048x3072/72266f301a79696a9879125906b7888d4e33be7b.pnj"> 
-
-ㅤㅤㅤ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=Paradisiacal-Duo&base=3000&color=423C67&style=flat-square&label=𓈒+✦+time+regs)
-
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img align="right" width="20" height="20" src="https://files.catbox.moe/u2pe4x.gif"> ◞ "Sorry, 𝘾𝙝𝙚𝙣𝙜 𝙓𝙞𝙖𝙤𝙨𝙝𝙞 I’ve always been
-telling you to 𝙣𝙤𝙩 change the 𝘱𝘢𝘴𝘵,
-but I couldn’t follow 𝙢𝙮 𝙤𝙬𝙣 𝙬𝙤𝙧𝙙𝙨.
-Even if I know 𝘥𝘦𝘢𝘵𝘩 is an 𝙪𝙣𝙘𝙝𝙖𝙣𝙜𝙚𝙖𝙗𝙡𝙚 point, 
-I still want to use the 𝙡𝙖𝙨𝙩 𝙘𝙝𝙖𝙣𝙘𝙚 to go 𝘣𝘢𝘤𝘬
-to the 𝘣𝘦𝘨𝘪𝘯𝘯𝘪𝘯𝘨 and 𝙨𝙖𝙫𝙚 y̲o̲u̲." ㅤㅤㅤㅤㅤㅤ⸝⸝
-
-
 <p align="center">
-•
+"If I spend an entire lifetime watching over you, in exchange for a single glance from you, I don’t want to be left with nothing when the dream ends."
 </p>
 <p align="center">
-•
+  <img width="800" height="800" src="https://64.media.tumblr.com/a38d5db3866e0d9b33c0d33c99cca1e2/46af058f7031f959-d9/s540x810/f97e01590011a259281b256880e94889ca3ec7c3.pnj">
 </p>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <p align="center">
-•
+c + h always allowed !! also, please whisper to interact since I'm afk/offtab most of the time and I might miss your message! 
+If you aren't my friend, do not boop or cover me ^_^ and I change styles a lot so let me know if it's too similar to yours . . . anyway take in mind that i have issues socializing, so I'm very awkward, it might be difficult for me to approach you first and hold a conversation thank you
 </p>
-<img align="center" width="200" height="200" src="https://64.media.tumblr.com/3c855aae103180929dc82e86bc3cce3d/10956ef9e5e4a8a8-7d/s2048x3072/ac0cf2fea158fa9a5a9c8b1500292c8b4fde236f.pnj"> 
-<img align="center" width="200" height="200" src="https://64.media.tumblr.com/6da545e8a342ae30e1248f2c1a40c437/10956ef9e5e4a8a8-6d/s2048x3072/ae770ab4763253e939dd177a2000cbf5796c4c6e.pnj"> 
-<img align="center" width="200" height="200" src="https://64.media.tumblr.com/1f0d0d2657366d7b33d20529b0487e0a/be470686f5cec99b-12/s2048x3072/7fc1bd42fea89ca9b06c9c18c9a0666c2f3e2b83.pnj"> 
 
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=Paradisiacal-Duo&base=3000&color=3B537D&style=flat-square&label=₍+ᐢ+.+.+ᐢ+₎)
