@@ -5,7 +5,7 @@
 "And so, my first love was all for you. How can these feelings be avoided? With you, I play a song of joy and sorrow. You've kept your innocence through all the storms"
 </p>
 <p align="center">
-  <img width="600" height="740"src="https://64.media.tumblr.com/5a2578a36172f3c19642a35585dfdb08/c3f821d9472a5545-06/s1280x1920/d8b552adfeb35b3f88051540d5abaa13e783bff9.pnj">
+  <img width="550" height="700"src="https://64.media.tumblr.com/5a2578a36172f3c19642a35585dfdb08/c3f821d9472a5545-06/s1280x1920/d8b552adfeb35b3f88051540d5abaa13e783bff9.pnj">
 </p>
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <p align="center">
