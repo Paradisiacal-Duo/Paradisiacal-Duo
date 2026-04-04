@@ -1,11 +1,11 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center">![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=Paradisiacal-Duo&base=3000&color=957961&style=flat-square&label=₍+ᐢ+.+.+ᐢ+₎)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center">![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=Paradisiacal-Duo&base=3000&color=465f7d&style=flat-square&label=Failed+timelines)
 
 
 <p align="center">
-"And so, my first love was all for you. How can these feelings be avoided? With you, I play a song of joy and sorrow. You've kept your innocence through all the storms"
+"Though at times we may find ourselves in darkness... Eventually, we meet people who shine their light on us."
 </p>
 <p align="center">
-  <img width="550" height="700"src="https://64.media.tumblr.com/5a2578a36172f3c19642a35585dfdb08/c3f821d9472a5545-06/s1280x1920/d8b552adfeb35b3f88051540d5abaa13e783bff9.pnj">
+  <img width="650" height="800"src="https://64.media.tumblr.com/e8e0eba51ba36698d1ecb45bc3a6642c/ef9b51151e48df57-9f/s540x810/023faf89bd863f7ade9df2d3c589f3b316d172e9.pnj">
 </p>
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <p align="center">
