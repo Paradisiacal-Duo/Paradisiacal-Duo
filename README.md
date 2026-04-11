@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center">![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=Paradisiacal-Duo&base=3000&color=465f7d&style=flat-square&label=Failed+timelines)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center">![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=Paradisiacal-Duo&base=3000&color=465f7d&style=flat-square&label=Failed+dives)
 
 
 <p align="center">
