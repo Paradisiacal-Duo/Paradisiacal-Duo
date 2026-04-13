@@ -7,7 +7,7 @@
 </p>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center">[PT info](https://rentry.co/justPTinfo)    , <p align="center">[Carrd](https://hyacinthslee.carrd.co/)  , <p align="center">[Ata](https://windblume.atabook.org/)
+ㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center">[PT info](https://rentry.co/justPTinfo)     <p align="center">[Carrd](https://hyacinthslee.carrd.co/)   <p align="center">[Ata](https://windblume.atabook.org/)
 
 
 <p align="center">
