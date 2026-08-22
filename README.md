@@ -7,7 +7,7 @@
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤ<p align="center">[PT info](https://rentry.co/justPTinfo)   ,   [Carrd](https://hyacinthslee.carrd.co/)  ,   [Ata](https://windblume.atabook.org/) , [Strawpage](https://leestraws.straw.page/)
+ㅤ<p align="center">[PT info](https://rentry.co/justPTinfo)   ,   [Carrd (wip)](https://leestraws.carrd.co/)  ,   [Ata](https://windblume.atabook.org/) , [Strawpage](https://leestraws.straw.page/)
 
 
 <p align="center">
