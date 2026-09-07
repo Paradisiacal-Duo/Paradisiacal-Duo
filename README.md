@@ -1,8 +1,8 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center">![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=Paradisiacal-Duo&base=3000&color=C7E6F2&style=flat-square&label=（+*+＾+-+＾+*+）)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center">![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=Paradisiacal-Duo&base=3000&color=C7E6F2&style=flat-square&label=★)
 
 
 <p align="center">
-<img width="290" height="280"src="https://i.pinimg.com/736x/1b/12/9f/1b129f154ad56ca94f5eae3e83bd497a.jpg">
+<img width="190" height="180"src="https://64.media.tumblr.com/1330f79e9f911067d8b2231938596720/247c62b0a32ca52f-24/s1280x1920/fce920690fe90e03b4784c18739ba8fc73cb986a.pnj">
 </p>
 
 
@@ -11,7 +11,7 @@
 
 
 <p align="center">
-✦
+✦ 
 </p>
 
 
