@@ -12,7 +12,9 @@
 
 
 
-ㅤ<p align="center">[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=iu796ygnehfins9hx4eueghzb&cover_image=true&theme=spotify-embed&show_offline=false&background_color=415463&interchange=false&profanity=false&hide_remaster=false&bar_color=56aaef&bar_color_cover=false&mode=dark)](https://github.com/kittinan/spotify-github-profile)
+ㅤ<p align="center">[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=iu796ygnehfins9hx4eueghzb&cover_image=true&theme=spotify-embed&show_offline=true&background_color=415463&interchange=false&profanity=false&hide_remaster=false&bar_color=56aaef&bar_color_cover=false&mode=dark)](https://spotify-github-profile.kittinanx.com/api/view?uid=iu796ygnehfins9hx4eueghzb&redirect=true)
+
+
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <p align="center">
