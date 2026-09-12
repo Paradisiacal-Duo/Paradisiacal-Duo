@@ -3,18 +3,19 @@
 <img src="https://64.media.tumblr.com/b8ee733b8f5d681566798e2cbbdcede0/2a1fe64add99df67-ac/s540x810/cb10a08517ca6e9247b610231cbeee39b04df408.gifv" width="500" align="left">
 
 <a href="https://windblume.atabook.org/">
-  <img src="https://64.media.tumblr.com/8d085e8871233337a218c6757db4a639/c65b2bd4fad44974-90/s400x600/5b79b73d290e2e59f6ce2d680b12870b672dd8ec.pnj" alt="ata" width="120">
-</a>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-  <img src="https://64.media.tumblr.com/11b5b8b5893fe205dbb399d46ddcb5cb/c65b2bd4fad44974-25/s400x600/67bfa42fb10654cbf204425b6786dd732697a953.pnj" alt="prns" width="150">
-</a>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+  <img src="https://files.catbox.moe/991vga.png" alt="ata" width="120">
+</a>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+<a href="https://en.pronouns.page/@ZER0">  
+  <img src="https://files.catbox.moe/7pu495.png" alt="prns" width="150">
+</a>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <a href="https://lnnxixi.carrd.co/">
-  <img src="https://64.media.tumblr.com/cc9a542f3f7a11f0a43f55f14e088f15/c65b2bd4fad44974-e1/s540x810/f0f3dd014606d9bc436d9d07ec0aa652c7269c41.pnj" alt="ata" width="160">
-</a>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+  <img src="https://files.catbox.moe/tpsy5q.png" alt="prns" width="160">
+</a>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <a href="https://lnnxixi.straw.page/">
-  <img src="https://64.media.tumblr.com/5641e4ed43f3667945a95399d73bd15e/c65b2bd4fad44974-60/s400x600/edd8c5b091a5535d28229bca514d56d1ac6ba383.pnj" alt="ata" width="170">
+  <img src="https://files.catbox.moe/txh597.png" alt="ata" width="170">
 </a>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <a href="https://rentry.co/justPTinfo">
-  <img src="https://64.media.tumblr.com/02b53abb834aed7c5b97db427458818d/c65b2bd4fad44974-df/s400x600/e2de832e66b383b750f3ea2cdbc08c61188e10ab.pnj" alt="ata" width="180">
+  <img src="https://files.catbox.moe/rbnv8t.png" alt="ata" width="190">
 </a>
 
 <br clear="left">
