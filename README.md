@@ -3,19 +3,19 @@
 <img src="https://64.media.tumblr.com/b8ee733b8f5d681566798e2cbbdcede0/2a1fe64add99df67-ac/s540x810/cb10a08517ca6e9247b610231cbeee39b04df408.gifv" width="500" align="left">
 
 <a href="https://windblume.atabook.org/">
-  <img src="https://files.catbox.moe/991vga.png" alt="ata" width="120">
+  <img src="https://files.catbox.moe/991vga.png" alt="ata" width="110">
 </a>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <a href="https://en.pronouns.page/@ZER0">  
-  <img src="https://files.catbox.moe/7pu495.png" alt="prns" width="150">
+  <img src="https://files.catbox.moe/7pu495.png" alt="prns" width="140">
 </a>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <a href="https://lnnxixi.carrd.co/">
-  <img src="https://files.catbox.moe/tpsy5q.png" alt="prns" width="160">
+  <img src="https://files.catbox.moe/tpsy5q.png" alt="prns" width="150">
 </a>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <a href="https://lnnxixi.straw.page/">
-  <img src="https://files.catbox.moe/txh597.png" alt="ata" width="170">
+  <img src="https://files.catbox.moe/txh597.png" alt="ata" width="160">
 </a>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <a href="https://rentry.co/justPTinfo">
-  <img src="https://files.catbox.moe/rbnv8t.png" alt="ata" width="190">
+  <img src="https://files.catbox.moe/rbnv8t.png" alt="ata" width="180">
 </a>
 
 <br clear="left">
